@@ -29,7 +29,8 @@
 <!-- BLOG-POST-LIST:START -->
 <!-- BLOG-POST-LIST:END -->
 
-?? [more blog posts...](https://dreamfurnitures.co.uk/shop/cheap-single-divan-beds/)
+?? Cheap Single divan beds (https://dreamfurnitures.co.uk/shop/cheap-single-divan-beds/)
+?? Double Divan Bed with mattress (https://dreamfurnitures.co.uk/shop/double-divan-bed-with-mattress/)
 
 ---
 
