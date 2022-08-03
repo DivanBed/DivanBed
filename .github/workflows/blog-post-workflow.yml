@@ -13,4 +13,4 @@ jobs:
       - uses: gautamkrishnar/blog-post-workflow@master
         with:
           max_post_count: "10"
-          feed_list: "https://divanbedwarehouselondon.tumblr.com/rss ,https://www.youtube.com/feeds/videos.xml?channel_id=UCjXIx2TuRQXNQhxvjWzkOLw"
+          feed_list: "https://dreamfurnitures.co.uk/feed/, https://divanbedwarehouselondon.tumblr.com/rss ,https://www.youtube.com/feeds/videos.xml?channel_id=UCjXIx2TuRQXNQhxvjWzkOLw"
