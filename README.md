@@ -27,6 +27,7 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [single divan beds with Storage Space &lpar;3ft&rpar;](https://divanbedwarehouselondon.tumblr.com/post/692045448888893440)
 - [Small Double Size Divan Bed](https://divanbedwarehouselondon.tumblr.com/post/691828568646467584)
 - [Cheap single divan beds - Do divan beds break easily? - Is slats or divan better?](https://www.youtube.com/watch?v=uwcbNQ_OP2I)
 - [Cheap divan bed with mattress and Headboard](https://divanbedwarehouselondon.tumblr.com/post/690937717368995840)
@@ -36,7 +37,6 @@
 - [Divan beds are made from 2 parts: a specially-designed divan...](https://divanbedwarehouselondon.tumblr.com/post/662849787517976576)
 - [Divan Bed - Divan Bed Warehouse](https://divanbedwarehouselondon.tumblr.com/post/662849634654371840)
 - [Divan Bed   Divan Bed Warehouse](https://www.youtube.com/watch?v=yermOsBVRFA)
-- [Divan Bed](https://divanbedwarehouselondon.tumblr.com/post/662581623370514432)
 <!-- BLOG-POST-LIST:END -->
 
 ?? [cheap single divan beds](https://dreamfurnitures.co.uk/shop/cheap-single-divan-beds/)
