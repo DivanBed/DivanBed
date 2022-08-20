@@ -44,7 +44,7 @@
 ---
 
 
-[website]: https://dreamfurnitures.co.uk/shop/cheap-single-divan-beds/
+[website]: https://dreamfurnitures.co.uk/product-category/divan-bed/
 [twitter]: https://twitter.com/beds_divan
 [youtube]: https://www.youtube.com/channel/UCnltp_d5V1T7S-WV_aT_L0A/videos
 [instagram]: https://www.instagram.com/Dreamfurnitures.co.uk_/
