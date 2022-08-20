@@ -27,6 +27,7 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [single divan beds - double divan beds - king size divan beds](https://www.youtube.com/watch?v=SoJazNvpThI)
 - [single divan bed with mattress - double divan bed with mattress](https://divanbedwarehouselondon.tumblr.com/post/692844192526893056)
 - [single divan beds with Storage Space &lpar;3ft&rpar;](https://divanbedwarehouselondon.tumblr.com/post/692045448888893440)
 - [Small Double Size Divan Bed](https://divanbedwarehouselondon.tumblr.com/post/691828568646467584)
@@ -36,7 +37,6 @@
 - [Divan Bed](https://divanbedwarehouselondon.tumblr.com/post/663292151490347008)
 - [Divan Bed - Divan Bed Warehouse](https://divanbedwarehouselondon.tumblr.com/post/662924167446921216)
 - [Divan beds are made from 2 parts: a specially-designed divan...](https://divanbedwarehouselondon.tumblr.com/post/662849787517976576)
-- [Divan Bed - Divan Bed Warehouse](https://divanbedwarehouselondon.tumblr.com/post/662849634654371840)
 <!-- BLOG-POST-LIST:END -->
 
 ?? [cheap single divan beds](https://dreamfurnitures.co.uk/shop/cheap-single-divan-beds/)
